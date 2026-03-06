@@ -15,3 +15,5 @@
 <img src="https://64.media.tumblr.com/4d2e113b80ee1b5c590ab19521bbe552/5af5d0fab218fbfd-4d/s400x600/55c156767b02675a5eac940f9071d9c439c03401.gif" width="90" /> 
 <br style="line-height:0; font-size:0;" />
 <img src="https://komarev.com/ghpvc/?username=okromy&label=angels&color=000000" width="70" height="70" align="center"> <img src="https://64.media.tumblr.com/3b162f4ae14793ab91682ac154ca46d3/aecde309182e18e7-5d/s250x400/820021bdc2811403776aaf3bb4957986484350f0.gif" width="110" height="150" align="center"> 
+
+pfp @rogersrival
