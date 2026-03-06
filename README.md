@@ -16,4 +16,3 @@
 <br style="line-height:0; font-size:0;" />
 <img src="https://komarev.com/ghpvc/?username=okromy&label=angels&color=000000" width="70" height="70" align="center"> <img src="https://64.media.tumblr.com/3b162f4ae14793ab91682ac154ca46d3/aecde309182e18e7-5d/s250x400/820021bdc2811403776aaf3bb4957986484350f0.gif" width="110" height="150" align="center"> 
 
-pfp @@stefphe on tiktok
