@@ -3,6 +3,6 @@
 
 c+h freely and whisper to interact.! Oki ♡
   
-[rentry](https://rentry.co/zweig)  ⟢ [atabook](https://crybaby.atabook.org/)  ⟢ [pin](https://www.pinterest.com/okavers) 
+  [rentry](https://rentry.co/zweig)  ⟢ [atabook](https://crybaby.atabook.org/)  ⟢ [pin](https://www.pinterest.com/okavers) 
 
 <img src="https://komarev.com/ghpvc/?username=crybabyakira&label=babies&color=1bc700&style=plastic" align="center"> this is a wipOk
