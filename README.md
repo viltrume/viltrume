@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://i.pinimg.com/1200x/e5/8f/f7/e58ff70daf8c17504a2aa32204e6fa8e.jpg" width="400" height="800" alt="image" align="left"> 
+<p align="center"> <img src="https://i.pinimg.com/1200x/01/ec/9a/01ec9aec3bf2a7ce0d4f3bb6d539f3c2.jpg" width="400" height="800" alt="image" align="left"> 
 
 
 c+h freely and whisper to interact.! Oki ♡
