@@ -3,7 +3,7 @@
 
 c+h freely and whisper to interact.! Oki ♡
   
-  [rentry](https://rentry.co/zweig)  ⟢ [atabook](https://crybaby.atabook.org/)  ⟢ [pin](https://www.pinterest.com/okavers) 
+  [rentry](https://rentry.co/damian)  ⟢ [atabook](https://crybaby.atabook.org/)  ⟢ [pin](https://www.pinterest.com/okavers) 
 
 <img src="https://komarev.com/ghpvc/?username=crybabyakira&label=babies&color=151735&style=plastic" align="center"> this is a wipOk
 
