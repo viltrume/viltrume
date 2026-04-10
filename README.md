@@ -2,6 +2,6 @@
 
 c+h freely (please) and whisper to interact .!
 
-  [rentry](https://rentry.co/tashi)  ⟢ [atabook](https://crybaby.atabook.org/)  ⟢ [pinterest](https://www.pinterest.com/okavers) ⟢
+  [rentry](https://rentry.co/tashi)  ⟢ [atabook](https://crybaby.atabook.org/)  ⟢ [pinterest]() ⟢
 
 <img src="https://komarev.com/ghpvc/?username=crybabyakira&label=babies&color=151735&style=plastic" align="center">  i ♡ my friends
