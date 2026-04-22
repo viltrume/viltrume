@@ -5,3 +5,5 @@ c+h freely and whisper to interact w/me
   [rentry](https://rentry.co/damian)  ⟢ [atabook](https://crybaby.atabook.org/)  ⟢ [pinterest](https://www.pinterest.com/dearlier/) ⟢
 
 <img src="https://komarev.com/ghpvc/?username=crybabyakira&label=babies&color=151735&style=plastic" align="center">  i ♡ my friends .! (˶˘ ³˘)
+
+excuse my lazy ass layout , github is acting weird Rn (◞ ⸝⸝ ◟ )
