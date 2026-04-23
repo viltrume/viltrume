@@ -4,7 +4,7 @@
 
  <em>‎ 𓂃 romy</em>  or kozi <img src="https://64.media.tumblr.com/b48a142c322e72c0a6327b3fca698950/c0cfd9ebfb8acbde-38/s75x75_c1/08daa549eb1e60ba0704f2d36c03095d5cab4cdf.webp" align="center"> 16<br>
 ᯓ⠀⠀istp⠀⚤⠀he/she <img src="https://64.media.tumblr.com/da08077939a1d3b803d2d44b93e0ac63/5732e589548c1c67-d6/s75x75_c1/7bbcff3b7ab77456a8ffb5bf42a5bfaf63595fc1.gif" width="20" height="20" align="center"> 𝄞 </br>
-. ‎ ‎ ‎ ‎  <a href="https://rentry.co/damian">rentry</a>◞  <a href="https://rentry.co/zweig">rentry²</a>◞ <a href="https://rentry.co/capsicle">ext</a>
+. ‎ ‎ ‎ ‎  <a href="https://rentry.co/damian">rentry</a>◞  <a href="https://rentry.co/zweig">rentry²</a>◞ <a href="https://rentry.co/capsicle">extend</a>
 <br style="line-height:0; font-size:0;" /> <img src="https://64.media.tumblr.com/ac453d949cc922096dd5a5d139fa4cf9/6f69045cfcad5ab4-c8/s250x400/1324cbe0838d63e36bdcb5043cb653d1221e365e.gifv" width="185" align="center"/>
 <br style="line-height:0; font-size:0;" />
 <img src="https://64.media.tumblr.com/0e5674b9c12893c89fa4fa22314bd273/ac965b23c748d1bb-b9/s100x200/fd53d5092290fc646d5a3be3b831d02ec6667849.gif" width="95" align="left"/> <img src="https://64.media.tumblr.com/a117b5b42bd3e7b429cfe3ac374ca98d/4e92bb8d32c82676-65/s100x200/a8340f3ff2d0fa1c8c2a2b31cad482adc49c101d.gif" width="95" /> 
