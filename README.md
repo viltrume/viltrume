@@ -2,9 +2,9 @@
 
 <img src="https://i.pinimg.com/736x/35/59/d1/3559d1e5a4b0c84e9884e0942514df49.jpg" width="200" height="350" alt="image" align="left">
 
- <em>‎ 𓂃 romy</em>  or kozi <img src="https://64.media.tumblr.com/b48a142c322e72c0a6327b3fca698950/c0cfd9ebfb8acbde-38/s75x75_c1/08daa549eb1e60ba0704f2d36c03095d5cab4cdf.webp" align="center"> 16<br>
-ᯓ⠀⠀istp⠀⚤⠀he/she <img src="https://64.media.tumblr.com/da08077939a1d3b803d2d44b93e0ac63/5732e589548c1c67-d6/s75x75_c1/7bbcff3b7ab77456a8ffb5bf42a5bfaf63595fc1.gif" width="20" height="20" align="center"> 𝄞 </br>
-. ‎ ‎ ‎ ‎  <a href="https://rentry.co/damian">rentry</a>◞  <a href="https://rentry.co/zweig">rentry²</a>◞ <a href="https://rentry.co/capsicle">extend</a>
+ <em>‎ ꒰𐔌 romy</em>  or kozi <img src="https://pixels.crd.co/assets/images/gallery02/c6772406.gif?v=29416114" align="center"> 16<br>
+ᯓ⠀⠀istp⠀⚤⠀he/she <img src="https://64.media.tumblr.com/db4a5a80cfdf620e1e79705337debe77/0267cbb62ed7e3e6-de/s75x75_c1/0bef6f75c4696b5f140db890ba941a160b45bc71.gifv" align="center"> 𝄞 </br>
+˖ ⸝⸝ <a href="https://rentry.co/damian">rentry</a>◞  <a href="https://rentry.co/zweig">rentry²</a>◞ <a href="https://rentry.co/capsicle">extend</a>
 <br style="line-height:0; font-size:0;" /> <img src="https://64.media.tumblr.com/2645ca4b22c9788ef18402b1ed45a32d/e08c33c6512054cc-39/s640x960/ba6e26d4c0a16ad825933fe3f6041dc5374423e7.pnj" width="190" align="center"/>
 <br style="line-height:0; font-size:0;" />
 <img src="https://64.media.tumblr.com/0e5674b9c12893c89fa4fa22314bd273/ac965b23c748d1bb-b9/s100x200/fd53d5092290fc646d5a3be3b831d02ec6667849.gif" width="95" align="left"/> <img src="https://64.media.tumblr.com/a117b5b42bd3e7b429cfe3ac374ca98d/4e92bb8d32c82676-65/s100x200/a8340f3ff2d0fa1c8c2a2b31cad482adc49c101d.gif" width="95" /> 
