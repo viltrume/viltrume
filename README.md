@@ -1,4 +1,4 @@
-[<img src="https://i.pinimg.com/1200x/e3/a9/38/e3a9384e6634f324e60a289541402da6.jpg" width="425" height="100" alt="image"> ](url)
+<img src="https://i.pinimg.com/1200x/e3/a9/38/e3a9384e6634f324e60a289541402da6.jpg" width="425" height="70" alt="image">
 
 <img src="https://i.pinimg.com/736x/35/59/d1/3559d1e5a4b0c84e9884e0942514df49.jpg" width="200" height="350" alt="image" align="left">
 
