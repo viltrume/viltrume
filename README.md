@@ -1,16 +1,9 @@
-<img src="https://i.pinimg.com/1200x/e3/a9/38/e3a9384e6634f324e60a289541402da6.jpg" width="425" height="70" alt="image">
 
-<img src="https://i.pinimg.com/736x/35/59/d1/3559d1e5a4b0c84e9884e0942514df49.jpg" width="200" height="350" alt="image" align="left">
 
  <em>‎ ꒰𐔌 romy</em>  or kozi <img src="https://pixels.crd.co/assets/images/gallery02/c6772406.gif?v=29416114" align="center"> 16<br>
 ᯓ⠀⠀istp⠀⚤⠀he/she <img src="https://64.media.tumblr.com/db4a5a80cfdf620e1e79705337debe77/0267cbb62ed7e3e6-de/s75x75_c1/0bef6f75c4696b5f140db890ba941a160b45bc71.gifv" align="center"> 𝄞 </br>
 ˖ ⸝⸝ <a href="https://rentry.co/damian">rentry</a>◞  <a href="https://rentry.co/zweig">rentry²</a>◞ <a href="https://rentry.co/capsicle">extend</a>
 <br style="line-height:0; font-size:0;" /> <img src="https://64.media.tumblr.com/2645ca4b22c9788ef18402b1ed45a32d/e08c33c6512054cc-39/s640x960/ba6e26d4c0a16ad825933fe3f6041dc5374423e7.pnj" width="190" align="center"/>
-<br style="line-height:0; font-size:0;" />
-<img src="https://64.media.tumblr.com/0e5674b9c12893c89fa4fa22314bd273/ac965b23c748d1bb-b9/s100x200/fd53d5092290fc646d5a3be3b831d02ec6667849.gif" width="95" align="left"/> <img src="https://64.media.tumblr.com/a117b5b42bd3e7b429cfe3ac374ca98d/4e92bb8d32c82676-65/s100x200/a8340f3ff2d0fa1c8c2a2b31cad482adc49c101d.gif" width="95" /> 
-<br style="line-height:0; font-size:0;" />
-<img src="https://64.media.tumblr.com/70917267c6a0f562f87a2cc982923209/62d72196e7fb1e6c-b8/s100x200/a345beb7a831c3348c7eb08a006f595a19863a92.pnj" width="95" /><img src="https://64.media.tumblr.com/ea54b63d80b9f558b97e379481022bb0/62d72196e7fb1e6c-61/s100x200/8d421d42e1a881cf674a04acb7bbe075aeea9b0f.pnj" width="95" /> 
-<br style="line-height:0; font-size:0;" />
-<img src="https://64.media.tumblr.com/48cad73fb733aa1186ecb2e2d0eb7852/f7c55be1568af1e4-93/s100x200/808b1831e873be2403d5d1238e5e0f1c3d666f25.gif" width="95" /><img src="https://64.media.tumblr.com/4d2e113b80ee1b5c590ab19521bbe552/5af5d0fab218fbfd-4d/s400x600/55c156767b02675a5eac940f9071d9c439c03401.gif" width="95" /> 
-<br style="line-height:0; font-size:0;" />
-<img src="https://64.media.tumblr.com/c64292ffee42c4b39cdffc506bfeb0d3/a7440cfc44ce9c6e-89/s100x200/019f369dfb752aecd16b1e6dc9fdfc0495c2b0dc.pnj" width="95"><img src="https://64.media.tumblr.com/28ddc5539a83ab30e2156475ba807c7a/704f4ace9de71c4b-71/s100x200/fd70f3c7245eaeb043cfd76517ddb2e7c68f0a08.pnj" width="95"> 
+<img src="https://i.postimg.cc/XJXY16fs/image-2024-05-24-003112596.png" width="200" height="15" alt="image">
+
+<img src="https://i.pinimg.com/736x/87/67/47/876747ac4e6d1ea38838bcf6e53ef191.jpg" width="190" height="180" alt="image" align="left">
