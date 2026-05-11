@@ -1,3 +1,10 @@
+can we not copy my ponies 😂😂😂✌️✌️✌️ 
+at least dont make it that obvious you fucking dumbell. 
+Literally colorpicked my 
+whole shit <img src="https://files.catbox.moe/fff8yg.png" width="300" > 
+
+
+
 <p align="center">
 
 <img src="https://i.pinimg.com/1200x/b1/60/df/b160df964a44703e287fa2a1173e8163.jpg" width="230" height="180" alt="image" align="center">
