@@ -1,8 +1,4 @@
-can we not copy my ponies 😂😂😂✌️✌️✌️ 
-at least dont make it that obvious, you fucking dumbell. 
-Literally colorpicked my 
-whole shit,  not just the stuff i highlighted. 
-Its genuinely embarassing when you do this on a game  that allows so much creative freedom. i dont know why you'd think adding a few accesorries would make it unrecognizable from mine. 
+can you not copy my ponies 😂😂😂✌️✌️✌️ or at least dont make it that obvious, you fucking dumbell. You literally just colorpicked my entire pony, hex code for hex code,  not just the stuff i highlighted. Its genuinely embarassing when you do this on a game  that allows for so much creative freedom. my friends spotted your bitchass immediately. i dont know why you'd think adding a few accesorries would make it unrecognizable from mine.
 <img src="https://files.catbox.moe/fff8yg.png" width="350" > 
 
 
