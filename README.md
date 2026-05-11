@@ -2,7 +2,7 @@ can we not copy my ponies 😂😂😂✌️✌️✌️
 at least dont make it that obvious you fucking dumbell. 
 Literally colorpicked my 
 whole shit  not just the stuff i highlighted. 
-Its genuinely embarassing when you do this on a game  that allows so much creative freedom. i dont know why you'd think adding a few accesorries would make it a new, unrecognizable pony. 
+Its genuinely embarassing when you do this on a game  that allows so much creative freedom. i dont know why you'd think adding a few accesorries would make it unrecognizable from mine. 
 <img src="https://files.catbox.moe/fff8yg.png" width="350" > 
 
 
