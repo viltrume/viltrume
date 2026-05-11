@@ -1,4 +1,4 @@
-can you not copy my ponies 😂😂😂✌️✌️✌️ or at least dont make it that obvious, you fucking dumbell. You literally just colorpicked my entire pony, hex code for hex code,  not just the stuff i highlighted. Its genuinely embarassing when you do this on a game  that allows for so much creative freedom. my friends spotted your bitchass immediately. i dont know why you'd think adding a few accesorries would make it unrecognizable from mine. if you see a ryland starting with "whoop" or some bs in their name, that is NOT me.
+can you not copy my ponies 😂😂😂✌️✌️✌️ or at least dont make it that obvious, you fucking dumbell. You literally just colorpicked my entire pony, hex code for hex code,  not just the stuff i highlighted. Its genuinely embarassing when you do this on a game  that allows for so much creative freedom. my friends spotted your bitchass immediately. i dont know why you'd think adding a few accesorries would make it unrecognizable from mine. 
 <img src="https://files.catbox.moe/6im1r2.jpeg" width="430" > 
 
 
