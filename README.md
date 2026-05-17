@@ -1,5 +1,5 @@
 <img src="https://files.catbox.moe/d9exf5.png"> 
-EXCSUE ME DO NOT COPY MY PONIES  <a href="https://github.com/jamesbuchananbarnes">@jamesbuchananbarnes</a> <img 
+EXCSUE ME DO NOT COPY MY PONIES i worked hard to shit it out <a href="https://github.com/jamesbuchananbarnes">@jamesbuchananbarnes</a> <img 
 
 <p align="center"> <img src="https://i.pinimg.com/originals/25/75/a8/2575a8228a2dc27ea674875ba9912d41.gif" width="260" height="180" alt="image" align="center"> <p align="center">
 <em>‎ ꒰𐔌 romy</em>  or <a href="https://pronouns.cc/@sheepi">kozi</a> <img src="https://64.media.tumblr.com/942f931784326693175569888f401f1e/148525f5f4a5e2cb-27/s100x200/a66753f6630348b00ecf7d8f41a2c4c3519af01c.gifv" align="center" width="60" height="20"> 16 yo<br>
