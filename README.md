@@ -4,9 +4,4 @@
 <a href="https://rentry.co/damian">rentry</a>◞  <a href="https://rentry.co/tashi">rentry²</a>◞ <a href="https://crybaby.atabook.org/">新Book</a> ◞ <a href="https://www.pinterest.com/sheepill/">pin</a>
 </p>
 
-EXCSUE ME DO NOT COPY MY PONIES i worked hard to shit it out <a href="https://github.com/jamesbuchananbarnes">@jamesbuchananbarnes</a> 
-
-<img src="https://files.catbox.moe/d9exf5.png" width="70"> 
-
-
 
